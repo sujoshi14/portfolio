@@ -1,1 +1,1 @@
-# shrenik94.github.io
+# sujoshi14.github.io/portfolio
